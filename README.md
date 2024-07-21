@@ -6,7 +6,7 @@
 
 <h2>🚀 Demo Video 📹📌 </h2>
 
-[https://drive.google.com/file/d/1iYjZk4ssW7oVCezrDcDfp4fiM7fLya7Y/view?usp=drivesdk](https://drive.google.com/file/d/1iYjZk4ssW7oVCezrDcDfp4fiM7fLya7Y/view?usp=drivesdk)
+[https://youtu.be/AvlppIcI484]
 <h2>🚀 Product Images 📸📌 </h2>
 
 [https://drive.google.com/drive/folders/1h7FdDerM_uP4rttDI9QX13s-n34V2NLw](https://drive.google.com/drive/folders/1h7FdDerM_uP4rttDI9QX13s-n34V2NLw)
